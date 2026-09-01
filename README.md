@@ -1,4 +1,5 @@
-<h1 align="center">Seb / Ronin 👋</h1>
+<h1 align="center">Seb / Ronin </h1>
+<h3 align="center"> he / any </h3>
 <p align="center">
 <img width="650" height="366" alt="image" src="https://github.com/user-attachments/assets/53ae42de-2ee9-4378-84d2-319ae028ef0f" />
 
