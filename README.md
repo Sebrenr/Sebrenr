@@ -1,4 +1,6 @@
-## Hi there 👋
+## Ronin / Seb
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/53ae42de-2ee9-4378-84d2-319ae028ef0f" />
+
 
 <!--
 **Sebrenr/Sebrenr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
