@@ -1,3 +1,4 @@
+<p align="center">
 ## Ronin / Seb
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/53ae42de-2ee9-4378-84d2-319ae028ef0f" />
 
@@ -16,3 +17,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+</p>
