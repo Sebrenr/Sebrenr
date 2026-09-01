@@ -37,10 +37,7 @@ whisper me or add my disc: abcv
 
 <p align="center">
 
-
-https://github.com/user-attachments/assets/b1c18220-0e9d-41e5-9142-4d91f3e692d6
-
-
+<img width="800" height="450" alt="ezgif-4eca747ef6f0f265" src="https://github.com/user-attachments/assets/93f7d0b6-871d-43e6-b710-fa41f51074e7" />
   </p>
 
 <!--
