@@ -9,7 +9,9 @@
 
 <h3 align="center"> BYI </h3>
 <p align="center"> 
-AFK most times but feel free to c+h, specially if you share fandoms. I usually take a while to see whispers, but I appreciate them!
+AFK most times but feel free to c+h, specially if you share fandoms. 
+I usually take a while to see whispers, but I appreciate them!
+I don't rp unless it's satire / joking so don't initiate RP.
 </p>
 
 <!--
