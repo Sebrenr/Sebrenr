@@ -12,6 +12,7 @@
 AFK most times but feel free to c+h, specially if you share fandoms. 
 I usually take a while to see whispers, but I appreciate them!
 I don't rp unless it's satire / joking so don't initiate RP.
+If you're a minor, please do not act inappropriately towards me. I am 18+.
 do not copy my skins. It's okay to ask for ideas or opinions on skin, but please don't purely copy me.
 </p>
 
