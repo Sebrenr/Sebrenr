@@ -35,8 +35,13 @@ whisper me or add my disc: abcv
 </p>
 
 
-<p align="center"> https://github.com/user-attachments/assets/bf538c7c-90e6-4687-829e-f84874487860 </p>
+<p align="center">
 
+
+https://github.com/user-attachments/assets/b1c18220-0e9d-41e5-9142-4d91f3e692d6
+
+
+  </p>
 
 <!--
 **Sebrenr/Sebrenr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
