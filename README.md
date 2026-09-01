@@ -14,7 +14,10 @@ I usually take a while to see whispers, but I appreciate them!
 I don't rp unless it's satire / joking so don't initiate RP.
 </p>
 
-https://images-ext-1.discordapp.net/external/WBiy6oq3f3Wuzt7MRVicklGH4txSb8PzCGxZ3cxPpqk/https/static.klipy.com/ii/4493325008d34b7bf8cd6813cd5c1619/e6/58/3v8Ma9a1u6tHLW3.mp4
+
+https://github.com/user-attachments/assets/73540d65-ba00-47b2-9dbd-525777dcd964
+
+
 <!--
 **Sebrenr/Sebrenr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
