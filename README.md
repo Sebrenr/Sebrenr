@@ -14,8 +14,11 @@ I usually take a while to see whispers, but I appreciate them!
 I don't rp unless it's satire / joking so don't initiate RP.
 </p>
 
+<p align="center">
+  <img width="328" height="328" alt="ezgif-89ad6bc2f116ed95" src="https://github.com/user-attachments/assets/0727296f-7d09-45df-8dfb-f394f6053796" />
+</p>
 
-https://github.com/user-attachments/assets/73540d65-ba00-47b2-9dbd-525777dcd964
+
 
 
 <!--
