@@ -12,14 +12,27 @@
 AFK most times but feel free to c+h, specially if you share fandoms. 
 I usually take a while to see whispers, but I appreciate them!
 I don't rp unless it's satire / joking so don't initiate RP.
+do not copy my skins. It's okay to ask for ideas or opinions on skin, but please don't purely copy me.
+</p>
+
+<h3 align="center"> DNI </h3>
+<p align="center"> 
+proshippers, RP, idk just don't be shitty.
 </p>
 
 <p align="center">
   <img width="328" height="328" alt="ezgif-89ad6bc2f116ed95" src="https://github.com/user-attachments/assets/0727296f-7d09-45df-8dfb-f394f6053796" />
 </p>
 
+<h3 align="center"> FANDOMS </h3>
+<p align="center"> 
+F1, Resident Evil, DBD, Genshin, HSR, Valorant, ALNST, PJSK, stardew, danganronpa, Visual Novels (TKaTB, 14DWY, Killer chat, etc... recommend me more if u know any)
+</p>
 
-
+<h3 align="center"> HOW TO REACH ME </h3>
+<p align="center"> 
+whisper me or add my disc: abcv
+</p>
 
 <!--
 **Sebrenr/Sebrenr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
