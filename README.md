@@ -27,7 +27,7 @@ proshippers, RP, idk just don't be shitty.
 
 <h3 align="center"> FANDOMS </h3>
 <p align="center"> 
-F1, Resident Evil, DBD, Genshin, HSR, Valorant, ALNST, PJSK, stardew, danganronpa, Visual Novels (TKaTB, 14DWY, Killer chat, etc... recommend me more if u know any)
+F1, Resident Evil, DBD, COD, Genshin, HSR, Valorant, ALNST, PJSK, stardew, danganronpa, Visual Novels (TKaTB, 14DWY, Killer chat, etc... recommend me more if u know any)
 </p>
 
 <h3 align="center"> HOW TO REACH ME </h3>
